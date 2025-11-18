@@ -3,6 +3,7 @@
 I'm a game designer with a well rounded knowledge of most things gaming and immersive media. Feel free to message me about any interesting related content on any of my socials here:
 
 LinkedIn: https://www.linkedin.com/in/h-donald/
+
 Email: haydendonald110@gmail.com
 
 Im currently working on Fire to Flourish at Monash Nexus for Emerging Technologies, which is a serious bushfire resilience game.
